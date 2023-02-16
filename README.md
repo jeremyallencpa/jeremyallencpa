@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jeremyallencpa
+- 👋 Hi, I’m Jeremy
 - 👀 I’m interested in crypto and decentralized finance
 - 📫 Reach me at jeremyallencpa@gmail.com
 
